@@ -1,5 +1,3 @@
-pony town made me a mean person
-
 ![image](https://github.com/user-attachments/assets/e30f0a80-54f3-4538-a808-cc8a62107feb)
 
 
